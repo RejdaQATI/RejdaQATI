@@ -1,4 +1,4 @@
-👋 Hi, @RejdaQATI! Welcome to the world of development!
+👋 Hi, I'm Rejda QATI! Welcome to my world of development!
 
 👀 I’m interested in exploring new technologies, refining coding skills, and building innovative solutions.
 
